@@ -1,1 +1,1 @@
-# Affiliate-Marketing-success-blueprint-
+# Affiliate-Marketing-success-blueprint.
